@@ -1,4 +1,4 @@
-# Kaplan Coupon 2025 | Get 60% Off Promo Code & Discount
+# Kaplan Coupon Code May 2025 | Get 60% Promo Discount
 
 Are you looking for a [**Kaplan coupon**](https://www.kaptest.com/) to save big on test prep or professional courses?
 
