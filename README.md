@@ -278,7 +278,7 @@ It offers highly structured, in-depth quant and verbal sections, making it a fav
 
 TTP is especially known for its detailed explanations, extensive question banks, and adaptive learning plans.
 
-And if you like TTP you can our [Target Test Prep coupon](https://github.com/Johniereed/Target-test-prep-coupon) to save up to 50% on your test prep subscription.
+And if you like TTP you can our [**Target Test Prep coupon**](https://github.com/James2169/Online-Courses/blob/main/Deals/Target%20Test%20Prep%20Coupon%202025%20%7C%20Get%2060%25%20Promo%20Discount.md) to save up to 50% on your test prep subscription.
 
 ## 2. PrepScholar 📚
 
@@ -286,7 +286,7 @@ PrepScholar is also a great alternative to Kaplan, this platform offers courses 
 
 PrepScholar also offers interactive lessons and personalized feedback, making it a great alternative for self-paced learners who want a tailored experience.
 
-And don’t worry I also have a great discount for PrepScholar where you can get up to 50% off with our exclusive [PrepScholar coupon](https://github.com/Johniereed/PrepScholar-coupon) and kickstart your learning without breaking your bank account.
+And don’t worry I also have a great discount for PrepScholar where you can get up to 50% off with our exclusive [**PrepScholar coupon**](https://github.com/nzjow69/prepscholar-coupon) and kickstart your learning without breaking your bank account.
 
 ## Final Thoughts: Kaplan test prep promo code | Get 60% Off
 
